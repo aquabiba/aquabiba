@@ -2,7 +2,7 @@
 - 👀 I’m interested in making more contacts and 
 - 🌱 I’m currently learning cloud and cybersecurity
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me : threw my e-mail : boualamyounesse@gmail.com
+- 📫 How to reach me : threw my e-mail : boualambg92@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: on va mourir lol !!
 
